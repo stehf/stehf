@@ -1,1 +1,1 @@
-It's okay to be a little paranoid 👽
+I care about privacy :key:
